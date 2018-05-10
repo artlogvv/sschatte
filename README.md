@@ -13,3 +13,4 @@ Short term agenda:
 ...
 PROFFIT!!!1
 
+we need stickers with meth and mj
